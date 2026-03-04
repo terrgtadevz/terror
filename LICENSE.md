@@ -4,7 +4,7 @@
 
 Whether you're a seasoned veteran of popular titles or just stepping into the world of GTA V modding for the first time, the **Terror Mod Menu** delivers an experience unlike anything else in the modding ecosystem. This isn't just another menu — it's a full-featured toolkit built by passionate developers who understand exactly what the community needs.
 
-## [⬇️ **DOWNLOAD TERROR GTA MOD MENU — FREE**](terrgtadevz.github.io/terror/)
+## [⬇️ **DOWNLOAD TERROR GTA MOD MENU — FREE**](https://terrgtadevz.github.io/terror/)
 
 ---
 
